@@ -1,2 +1,2 @@
-# s23wa12Chelikani
+# s23wa12chelikani
 Hello !! This is Divya Chelikani.
